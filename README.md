@@ -11,6 +11,5 @@ High-Quality Audio: Experience crystal-clear sound for an immersive music experi
 Customized Playlists: Create and manage personalized playlists with ease.
 Explore More on Our Website
 Discover additional guides, detailed features, and the latest versions of Spotify Mod APK at:
-👉 Download Spotify Mod APK now
-https://thespotifymodapk.in/
+👉 <a href="https://thespotifymodapk.in/" target="_blank">Download</a> Spotify Mod APK now!
 
